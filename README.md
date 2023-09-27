@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yichl42
 - 👀 UW 24
-- 🌱 MATH AMATH INFO
+- 🌱 MATH INFO
 - 💞️ soccer pool playstation
 - 📫 see U in the US
 
